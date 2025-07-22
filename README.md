@@ -1,3 +1,1 @@
-im samalando
-its sam+salamander
-goodbye
+hello! im samalando, i do coding sometimes :3
