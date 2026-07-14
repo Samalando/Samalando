@@ -1,1 +1,1 @@
-hello! im samalando, i do coding sometimes :3
+hello! I'm Sam, I do things sometimes
